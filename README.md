@@ -2,7 +2,9 @@
 ### 👩🏽‍🚀 Hi, I’m @samox03
 
 🌱 I’m interested in tech, innnovation and humanity!
+
 🫀 Special interests lie in ecology & privacy & society.
+
 I’m looking to collaborate on Web Development Projects.
 
 🤲🏾 Write me at sam_contact@tutanota.com
