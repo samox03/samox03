@@ -1,7 +1,5 @@
-### Hi there 👋
 
-
-👩🏽‍🚀 Hi, I’m @samox03
+### 👩🏽‍🚀 Hi, I’m @samox03
 
 I’m interested in tech, innnovation and society!
 
