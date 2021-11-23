@@ -2,8 +2,11 @@
 
 
 👩🏽‍🚀 Hi, I’m @samox03
+
 I’m interested in tech, innnovation and society!
+
 I’m looking to collaborate on Web Development Projects.
+
 🤲🏾 Write me at sam_contact@tutanota.com
 
 <!--
