@@ -5,9 +5,9 @@
 
 🫀 Special interests lie in ecology & privacy & society.
 
-I’m looking to collaborate on Web Development Projects.
+I’m open for collaborative Web Dev projects.
 
-🤲🏾 Write me at sam_contact@tutanota.com
+🤲🏾 contact me via sam_contact@tutanota.com
 
 <!--
 **samox03/samox03** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
