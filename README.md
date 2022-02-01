@@ -1,7 +1,7 @@
 
 ### 👩🏽‍🚀 Hi, I’m @samox03
 
-🌱 I’m interested in tech, innnovation and humanity!
+I’m interested in tech, innnovation and humanity!
 
 🫀 Special interests lie in ecology & society.
 
