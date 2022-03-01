@@ -3,7 +3,7 @@
 
 I’m interested in tech, innnovation and humanity!
 
-🫀 Special interests lie in ecology & society.
+🫀 Special interests in ecology & society.
 
 I’m open for collaborative Web Dev projects.
 
