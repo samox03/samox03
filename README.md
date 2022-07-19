@@ -5,7 +5,7 @@ I’m interested in tech, innnovation and future of humanity!
 
 🫀 Special interests in ecology & society.
 
-Open for collaborative projects ->
+Open for collaborative projects:
 
 🤲🏾 contact me via sam_contact@tutanota.com
 
